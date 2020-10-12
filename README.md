@@ -10,7 +10,7 @@
   - :pencil:sketching and drawing
   - :book:reading educational informations
   
- ## **:telephone_receiver: Contact me**
+ ## **:telephone_receiver: Follow and Contact me**
  - [Facebook](https://web.facebook.com/princedeo.solanib)
  - [Instagram](https://www.instagram.com/prince_tekumo/?hl=en)
  - [Gmail](https://mail.google.com/mail/u/3/#inbox)
