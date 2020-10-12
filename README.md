@@ -1,4 +1,4 @@
-# Konnichiwa everyone, it's Prince Deo Solanib:smiley:.
+# Konnichiwa everyone, it's Prince Deo Solanib:smiley:
 ## **-Prince Deo's Bio-**
   A 21 years old boy who wants to travel around the world especially, to go in Japan:mount_fuji:. Currently studying  at West Visayas State University:school: taking up Multimedia. Also a crew of McDonalds SM City store 214.
   
